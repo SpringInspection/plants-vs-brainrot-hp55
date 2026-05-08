@@ -1,4 +1,4 @@
-
+underground plants vs brainrots Script is the best plants vs brainrots Script, featuring silent aim and god mode. Safe and powerful for all your
 
 
 
